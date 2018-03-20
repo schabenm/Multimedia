@@ -4,4 +4,4 @@ The End
 or is it...
 it is never over.
 JAYDEN IS SAYING FRICK
-help us jayden... help us
+help us jayden... help us    please
